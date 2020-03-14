@@ -34,7 +34,7 @@
 
 - - - -
 
-## 转轮王
+## 转轮王 A Righteous King Who Ruled By The Dhamma
 
 > 「有这二种人，当出现于世间时，对众人有利益，对众人安乐，对许多人：天与人有利益、有利、安乐而出现，哪二种呢？如来、阿罗汉、遍正觉者与转轮王。」—— 《增支部》[2集 53经](http://agama.buddhason.org/AN/AN0281.htm)
 
