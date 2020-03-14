@@ -34,3 +34,8 @@
 --- | ---
 国王衰败的原因 | 《增一阿含经》卷42（[46 结禁品](http://agama.buddhason.org/AA/AA414.htm)）
 七不衰退法 | 《长部》16经（[般涅槃大经](http://agama.buddhason.org/DN/DN16.htm)）
+
+
+作者 | 标题 | 章节
+--- | ---  | ---
+印顺导师 | 佛法概论 | [德化的政治生活](https://yinshun-edu.org.tw/zh-hant/Master_yinshun/y08_16_01_04)
